@@ -1,0 +1,1 @@
+ma omer tarar apsey request krta hon k kindly rotti khila dayen 2 din sy bhooka hon
